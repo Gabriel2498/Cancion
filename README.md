@@ -2,15 +2,15 @@
 Primer Trabajo en grupo 
 
 
-Tomo Lo Que Encuentro-- Virus
+Tomo Lo Que HAYA-- Virus
 
-No me imaginaba que eras tan lelouch
-Tu beso en el vidrio dejo marcado el rouge
+No me LO imaginaba que eras tan lelouch
+Tu beso en el ESPEJO dejo marcado el rouge
 No me importa nada en cuestión de amor
 Tomo lo que encuentro
-Me siento algo mejor
+Me siento algo MAYOR
 El avión ya despego
-Con destino a nueva york
+Con destino a SAENZ PEÑA
 Es un viaje de placer
 Alquilado para
 
@@ -20,13 +20,13 @@ No me importa nada en cuestión de amor
 Tomo lo que encuentro
 Me siento algo mejor
 El avión ya despego
-Con destino a nueva york
-Es un viaje de placer
+Con destino a SAENZ PEÑA
+Es un viaje de SENSASIONES
 Alquilado para
 
-El avión ya despego
-Con destino a nueva york
-Es un viaje de placer
+El AEROPLANO ya despego
+Con destino a SAENZ PEÑA
+Es un viaje de AMOR
 Alquilado para
 
 
